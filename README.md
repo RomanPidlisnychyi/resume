@@ -1,1 +1,1 @@
-https://romanpidlisnychyi.github.io/resume/index.html
+https://romanpidlisnychyi.github.io/resume/
